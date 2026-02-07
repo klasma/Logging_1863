@@ -1,0 +1,1 @@
+# Hällefors kommun
